@@ -1,4 +1,4 @@
-Hello, 
+Hello, is that you Ryan. I'm groping my way through this thing. Is a fork the same and an effing branch? 
 
 Thanks for opening this file and taking the time to read me. 
 
